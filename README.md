@@ -1,1 +1,0 @@
-# pruthvi.github.io
